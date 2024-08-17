@@ -1,0 +1,2 @@
+# sexmoneyfeelingsdie
+treating people equally
